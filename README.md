@@ -1,5 +1,5 @@
 
-## Hi there 👋 
+## 👋 Hi there 
 Welcome to my Github page! I am 3xsh0re and I am currently studing 👨‍💻 Information Security 🥳at USTB!
 
 ## 🧐 About
